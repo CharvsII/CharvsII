@@ -82,6 +82,6 @@ Connect With Me
 
 📧 Email: charvsjalandoni@gmail.com
 
-💻 Portfolio: (Add your portfolio link here once it's ready)
+💻 Portfolio:
 
 ⭐ Thanks for visiting my profile!
